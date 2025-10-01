@@ -40,8 +40,6 @@ just ask to be friends! you dont have to be shy, i will respond as possible, i m
 
 - olice (oliver x alice)
 
-(there are also more but kinda lazy)
-     this is all i got guys
 
 
 ![1000002210](https://github.com/user-attachments/assets/0f1eee82-483b-420f-82ad-b12c8fefc914)
