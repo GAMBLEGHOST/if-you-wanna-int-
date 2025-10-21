@@ -44,3 +44,4 @@ just ask to be friends! you dont have to be shy, i will respond as possible, i m
 
 ![1000002210](https://github.com/user-attachments/assets/0f1eee82-483b-420f-82ad-b12c8fefc914)
 
+## this is me btw ↑
