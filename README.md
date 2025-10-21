@@ -5,11 +5,9 @@ just ask to be friends! you dont have to be shy, i will respond as possible, i m
  
 - if you know about my dni list/ readed it, you can feel free to int.
 
-- i love having friends!!
-
 ## DNI LIST
 
-- Dni com shippers, pro and dark shippers
+- Dni com shippers, pro and dark shippers and problematic people?? (pls stay away from me)
 
 - Dni ex friends
 
