@@ -16,7 +16,7 @@ just ask to be friends! you dont have to be shy, i will respond as possible, i m
 
 ## INT IF YOU SHIP
 
-- Gambleghost, gamblingsouls, slowgachapon, unvisiblegachapon (gigi x connie)
+- Gambleghost, gamblingsouls, slowgachapon,unvisiblegachapon, slowlyrich, bluecoin (gigi x connie)
 
 - shellghost (shelly x connie)
 
