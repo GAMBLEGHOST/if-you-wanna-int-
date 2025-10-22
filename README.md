@@ -20,7 +20,7 @@ just ask to be friends! you dont have to be shy, i will respond as possible, i m
 
 - shellghost (shelly x connie)
 
-- bubblyscared (poppy x connie)
+- bubblyscared, spookbubble (poppy x connie)
 
 - cleanpaintwrapper (tisha x brusha x scraps)
 
