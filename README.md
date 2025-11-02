@@ -14,11 +14,18 @@ just ask to be friends! you dont have to be shy, i will respond as possible, i m
 - Dni if you copy skins + take inspo without perms from anyone else!
 
 
-## INT IF YOU SHIP
+## INT + CXH PLS!!
 
 - jellyfly, frilledsugar ( frilled jellyfish cookie sugarfly cookie)
 
 - Gambleghost, gamblingsouls, slowgachapon,unvisiblegachapon, slowlyrich, bluecoin (gigi x connie)
+
+- + or any other ships made by me!!
+
+## 
+
+## INT IF YOU LIKE..
+
 
 - shellghost (shelly x connie)
 
