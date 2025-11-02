@@ -16,6 +16,8 @@ just ask to be friends! you dont have to be shy, i will respond as possible, i m
 
 ## INT + CXH PLS!!
 
+- any yuri from any fandom
+
 - jellyfly, frilledsugar ( frilled jellyfish cookie sugarfly cookie)
 
 - Gambleghost, gamblingsouls, slowgachapon,unvisiblegachapon, slowlyrich, bluecoin (gigi x connie)
