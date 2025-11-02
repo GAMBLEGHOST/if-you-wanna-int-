@@ -41,6 +41,8 @@ just ask to be friends! you dont have to be shy, i will respond as possible, i m
 
 - berryvision, digitalberry (sprout x vee)
 
+- 1xpizzas ( 1x4 x elliot )
+
 - azuretime (azure x two time)
 
 - doublezipper (azure x 1x4)
