@@ -18,7 +18,7 @@ just ask to be friends! you dont have to be shy, i will respond as possible, i m
 
 - any yuri from any fandom
 
-- jellyfly, frilledsugar ( frilled jellyfish cookie sugarfly cookie)
+- jellyfly, frilledsugar ( frilled jellyfish cookie x sugarfly cookie)
 
 - Gambleghost, gamblingsouls, slowgachapon,unvisiblegachapon, slowlyrich, bluecoin (gigi x connie)
 
