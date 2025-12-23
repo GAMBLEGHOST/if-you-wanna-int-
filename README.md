@@ -7,6 +7,8 @@ just ask to be friends! you dont have to be shy, i will respond as possible, i m
 
 ## DNI LIST
 
+- Dni if you like me bc im taken by the love of my life <3
+
 - Dni com shippers, pro and dark shippers and problematic people?? (pls stay away from me)
 
 - Dni ex friends
