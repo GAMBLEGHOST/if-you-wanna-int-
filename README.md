@@ -1,4 +1,4 @@
-# if you wanna int,
+# Before you intreact...
 just ask to be friends! you dont have to be shy, i will respond as possible, i might be offtab or working, doing stuff, busy. 
 
 i am so sorry bc sometimes (actually mostly) i hate intreacting first!!
