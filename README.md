@@ -34,6 +34,8 @@ i am so sorry bc sometimes (actually mostly) i hate intreacting first!!
 
 - shellghost (shelly x connie)
 
+- spookygachaponshell ( connie x gigi x shelly )
+
 - bubblyscared, spookbubble (poppy x connie)
 
 - cleanpaintwrapper (tisha x brusha x scraps)
@@ -44,7 +46,7 @@ i am so sorry bc sometimes (actually mostly) i hate intreacting first!!
 
 - brushyhauntedgachaponshell (brusha x connie x gigi x shelly)
 
-- berryvision, digitalberry (sprout x vee)
+- berryvision, digitalberry (dni berryvision shippers but also dniuid because yes)
 
 - 1xpizzas ( 1x4 x elliot )
 
@@ -57,6 +59,13 @@ i am so sorry bc sometimes (actually mostly) i hate intreacting first!!
 - twicepizzagambling (two time x elliot x chance)
 
 - olice (oliver x alice)
+
+- AKA (aiden x kaatie/Oliver x Alice)
+
+- pierrot x angel (what do u call this)
+
+- pierrot x harlequin TOXIC YAOI
+
 
  + theres more from many fandoms 
 
