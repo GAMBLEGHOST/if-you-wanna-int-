@@ -1,4 +1,5 @@
 # Before you intreact...
+### this readme is so old omg pls? stop arguing me for ts
 just ask to be friends! you dont have to be shy, i will respond as possible, i might be offtab or working, doing stuff, busy. 
 
 i am so sorry bc sometimes (actually mostly) i hate intreacting first!!
